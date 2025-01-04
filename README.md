@@ -1,1 +1,1 @@
-# song-blue
+Welcome to my GitHub! 👋 I'm Neophyte. Feel free to explore, fork, and contribute to any project that catches your interest. Your feedback and suggestions are always welcome! Let's build something amazing together. 🚀
